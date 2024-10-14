@@ -1,4 +1,5 @@
-![Screenshot_20241014_044039_Gallery](https://github.com/user-attachments/assets/36484ac0-d8f1-491e-bd9d-fb124d389dea)
+![Screenshot_20241014_150135_TikTok](https://github.com/user-attachments/assets/6136af63-0283-43d1-8707-e36f2a926d8d)
+
 # Pemuja Raptor
 
 Selamat datang di repo saya! 
