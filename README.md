@@ -1,5 +1,4 @@
-![Uploading Screenshot_20241014_150135_TikTok.jpg…]()
-
+![Screenshot_20241014_150135_TikTok](https://github.com/user-attachments/assets/42e27fb5-e6de-402c-a0f6-a0f10b000fd6)
 
 # Pemuja Raptor
 
