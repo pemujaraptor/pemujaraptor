@@ -1,4 +1,4 @@
-![Screenshot_20241014_150135_TikTok](https://github.com/user-attachments/assets/42e27fb5-e6de-402c-a0f6-a0f10b000fd6)
+![koceng](https://github.com/user-attachments/assets/f2fd1d01-c4e1-41d6-98a7-9326ecd93a2e)
 # Pemuja Raptor
 Selamat datang di repositories saya! 
 Untuk diskusi lebih lanjut, silakan bergabung di Telegram saya: [@pgfight](https://t.me/pgfight)
